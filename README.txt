@@ -1,4 +1,5 @@
 "Citadelle" door Antoine de St Exupéry, eerste druk posthuum uitgegeven in 1948.
+Hoofdstukken zijn vertaald, samengevat en gerangschikt naar eigen inzicht.
 
 De kleine Prins voor Grote Mensen
 
